@@ -6,7 +6,7 @@
 
 ![Screenshot 2024-06-18 201122](https://github.com/AdityaKumar06/ASC/assets/132258134/c4712c2c-7581-48eb-82a0-234fcd98df80)
 
-![Screenshot 2024-06-18 200954](https://github.com/AdityaKumar06/ASC/assets/132258134/71bf9bbf-cde2-4f96-920c-7cbfb3ff157b)
+
 
 ![Screenshot 2024-06-18 203334](https://github.com/AdityaKumar06/ASC/assets/132258134/15a91e4e-228a-431b-b414-4c3d7d14f29a)
 
